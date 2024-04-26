@@ -1,2 +1,2 @@
-# samki
-BEST CONTENT ON  IG....CHECK ME OUT HOMIE
+# sam kimani
+# Python, HTML, CSS, Javascript
